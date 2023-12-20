@@ -1,2 +1,3 @@
-![Banner de Linkedin Moderno ](https://github.com/bryandejesusrt/bryandejesusrt/assets/71520172/bb2723fa-7849-4e37-a16c-6975e6537cc7)
+
+![Banner de Linkedin Moderno para Arquitecto Azul y Blanco](https://github.com/bryandejesusrt/bryandejesusrt/assets/71520172/2dfe7fe4-b654-4988-9759-26f523b99a41)
 
